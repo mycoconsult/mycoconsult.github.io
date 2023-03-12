@@ -1,1 +1,0 @@
-# mycoconsult.github.io
